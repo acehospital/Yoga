@@ -1,4 +1,5 @@
 # Benefits of Yoga
+<img src="https://www.acehospitals.in/wp-content/uploads/2019/02/Yoga-768x461.jpg" alt="yoga classes in pune kothrud, yoga centers in pune"></img><br>
 Yoga is a physical, mental and spiritual practices or disciplines which originated in ancient India. The origins of Yoga have been speculated to date-back to pre-Vedic Indian traditions. Yoga gurus from India later introduced Yoga to the West. Many studies have determined the effectiveness of modern Yoga as a complementary intervention for cancer, schizophrenia asthma and heart disease.
 Yoga has five principal traditional meanings:
 1)	A disciplined method for attaining a goal
